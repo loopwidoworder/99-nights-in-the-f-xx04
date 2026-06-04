@@ -1,4 +1,4 @@
-#  
+#  top Script for dandy's world is the best dandy's world Script, featuring no clip and invisibility. Safe and powerful for all your needs.
 
 
 
